@@ -1,2 +1,32 @@
 # robot-namer
 Program for a robot to name itself
+
+Plastic debonnaire
+Sandy chamberlain
+Panacea Portulacaria
+Miriamne sweatproof
+Beckie felony
+Chuck Cystoradiography
+Maria Teapottykin
+Honzo Tacker
+Clayton Sardanapalus
+Vicki Cryptoheretic
+Geoffrey Conservatory
+Alison Beshawled
+Danny Ungagged
+Peter Cunabular
+Hsi Ginghamed
+Rayan Gelogenic
+Ozan Sheetless
+Casper Sublaciniate
+Geoffrey Underestimate
+Louis Unprevented
+Harmon Natural
+Siping Lacer
+Raanan Barometric
+Micah Noncommittalism
+Chris Entomeric
+Barbra Ungrimed
+Doyle Denization
+Roger Equivalenced
+Merton Whortleberry
